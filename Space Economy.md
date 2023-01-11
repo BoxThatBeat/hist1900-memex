@@ -1,0 +1,3 @@
+As technology for transportation evolved from walking to horseback riding to cars to planes and jets, the idea of space has changed. We say Toronto is 4 hours away but that is under the assumption that you would drive. A thousand years ago, the idea of space between Ottawa and Toronto (at least the idea of distance not this particular location) has changed dramatically. It would have felt like a much larger distance because it would take weeks to travel the distance.
+
+See [Roman Empire Roads](https://orbis.stanford.edu/)
